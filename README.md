@@ -1,0 +1,7 @@
+- [https://medium.com/@37718938](https://medium.com/@37718938)
+- [https://www.quora.com/profile/Kaitlyn-Wunderly](https://www.quora.com/profile/Kaitlyn-Wunderly)
+- [https://www.reddit.com/user/Training_Ostrich_798/](https://www.reddit.com/user/Training_Ostrich_798/)
+- [https://www.youtube.com/channel/UCuUg2vbqpcTrQl_mvl4AfBw](https://www.youtube.com/channel/UCuUg2vbqpcTrQl_mvl4AfBw)
+- [https://x.com/KaitlynWunderly](https://x.com/KaitlynWunderly)
+- [https://yo.fan/37718938](https://yo.fan/37718938)
+- [https://socialsoft9.github.io](https://socialsoft9.github.io)
